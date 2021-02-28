@@ -1,2 +1,2 @@
 # ExamenSeminario
-Nombre: Ramiro Rodrigo Mamani Callahuanca.
+Nombre: univ. Ramiro Rodrigo Mamani Callahuanca.
